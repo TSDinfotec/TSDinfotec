@@ -113,7 +113,7 @@
 
 <div align='center'>
 
-## <b>✨ Eu sou porque nós somos ✨</b>
+## <b>✨ "Sou o que sou porque somos todos nós" ✨</b>
 
 </div>
 <br>
