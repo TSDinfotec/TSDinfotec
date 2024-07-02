@@ -15,9 +15,9 @@
 
 - Professor de Jiu Jitsu (Black Belt 5 graus)
 - Jogador profissional de beach tennis nas horas vagas
-- Atualmente cursando Analise e Desenvolvimento de Sistemas pela UNIESP
-- Sou fonoaudiólogo de profissão
-- Desenvolvimento Web me cativou por isso estou aberto para um estagiário ou uma nova oportunidade de trabalho nessa área
+- Analise e Desenvolvimento de Sistemas pela UNIESP-PB
+- Fonoaudiólogo e Educador Físico por profissão
+- Desenvolvimento Web me cativou por isso estou aberto para oportunidades de trabalho nessa área
 
 <br><br>
 
