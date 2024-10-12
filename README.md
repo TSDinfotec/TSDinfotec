@@ -17,7 +17,7 @@
 - Jogador profissional de beach tennis nas horas vagas
 - Analise e Desenvolvimento de Sistemas pela UNIESP-PB
 - Fonoaudiólogo e Educador Físico por profissão
-- Desenvolvimento Web me cativou por isso estou aberto para oportunidades de trabalho nessa área
+- Análise e Desenvolvimento me cativou por isso estou aberto para oportunidades de trabalho nessa área
 
 <br><br>
 
